@@ -2,10 +2,10 @@
 This is a free SEO backlink project where you can submit your website link to improve its ranking and enhance search engine visibility. Please note that links to websites with illegal, adult, gambling, or other prohibited content are strictly not allowed.
 
 ## backlink
-1. [yourcareergpt](https://yourcareergpt.com/)  
-2. [ykwiki](https://ykwiki.com/)  
-3. [meowwonder](https://meowwonder.com/)  
-4. [heartyearning](https://heartyearning.com/)  
+1. [your career gpt](https://yourcareergpt.com/)  
+2. [yk wiki](https://ykwiki.com/)  
+3. [meow wonder](https://meowwonder.com/)  
+4. [heart yearning](https://heartyearning.com/)  
 5. [display stand](https://www.tsianfan.com/product/Tile-Display-Rack.html)  
 6. [mosaic display](https://www.mosaicdisplay.com/)  
 7. [quartz display](https://www.quartzdisplay.com/)  
